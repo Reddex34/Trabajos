@@ -1,0 +1,1 @@
+Le pedí consejos a un amigo que esta estudiando programación en la U, quería que fuera mas a un proyecto real y lo la creación de un principiante use enlaces a contenidos externos para embellecer el trabajo.
